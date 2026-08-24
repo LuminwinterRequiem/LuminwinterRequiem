@@ -133,3 +133,8 @@ and simply chose to forget.”
 
 <img width="736" height="414" alt="8fd97477-b957-4914-a734-4a5a0bb0dc0a" src="https://github.com/user-attachments/assets/45392270-2a30-40aa-bf34-c5feaee94898" />
 
+✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
+
+
+<img width="720" height="649" alt="1787584043383" src="https://github.com/user-attachments/assets/eb87d06c-c180-424a-b7a4-c0e93df6d0b7" />
+
