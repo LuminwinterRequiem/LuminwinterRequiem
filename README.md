@@ -1,3 +1,4 @@
+<img width="736" height="414" alt="95812c3c-9d9b-431b-a98b-d8ceaf40ff3f" src="https://github.com/user-attachments/assets/47ca059f-46b1-4f06-8ca8-b723d1fb3c2f" />
 
 
 </div>
@@ -95,3 +96,15 @@ my f/o's!!
 
 ♡ Varka (GI) → NS
 ♡ Ashveil (HSR) → SS
+
+<img width="736" height="414" alt="5ea51419-3d2a-40a4-8396-f49fb6f0f5e6" src="https://github.com/user-attachments/assets/e9bf2d8c-c5d1-441f-befd-62d4701494d9" />
+
+🐇 𝘺𝘶𝘮𝘦𝘴𝘩𝘪𝘱 / 𝘰𝘤 𝘤𝘰𝘳𝘯𝘦𝘳... 
+
+<img width="736" height="736" alt="Picsart_26-08-23_15-11-56-921" src="https://github.com/user-attachments/assets/a5d7a708-30d9-4544-b09f-9ae70ee55206" />
+
+"𝓝𝓸 𝓶𝓪𝓽𝓽𝓮𝓻 𝓱𝓸𝔀 𝓶𝓾𝓬𝓱 𝔂𝓸𝓾 𝓯𝓲𝓰𝓱𝓽, 𝓱𝓸𝔀
+𝓶𝓪𝓷𝔂 𝓼𝓬𝓪𝓻𝓼 𝔂𝓸𝓾 𝓶𝓪𝓭𝓮, 𝓘 𝓪𝓵𝔀𝓪𝔂𝓼
+𝓫𝓮 𝓽𝓱𝓮𝓻𝓮 𝓯𝓸𝓻 𝔂𝓸𝓾 𝓯𝓸𝓻𝓮𝓿𝓮𝓻 𝓪𝓷𝓭 𝓵𝓸𝓿𝓮 𝔂𝓸𝓾.."
+
+        "𝓼𝓽𝓸𝓹... 𝔂𝓸𝓾 𝓶𝓪𝓴𝓲𝓷𝓰 𝓶𝓮 𝓬𝓻𝔂𝔂𝔂𝓾𝓱𝓱𝓱.."
