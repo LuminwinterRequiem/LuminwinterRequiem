@@ -108,3 +108,28 @@ my f/o's!!
 𝓫𝓮 𝓽𝓱𝓮𝓻𝓮 𝓯𝓸𝓻 𝔂𝓸𝓾 𝓯𝓸𝓻𝓮𝓿𝓮𝓻 𝓪𝓷𝓭 𝓵𝓸𝓿𝓮 𝔂𝓸𝓾.."
 
         "𝓼𝓽𝓸𝓹... 𝔂𝓸𝓾 𝓶𝓪𝓴𝓲𝓷𝓰 𝓶𝓮 𝓬𝓻𝔂𝔂𝔂𝓾𝓱𝓱𝓱.."
+
+<img width="600" height="200" alt="a96c7747-2cb6-476c-a95d-7933e6dad4e0" src="https://github.com/user-attachments/assets/ae3afdec-1a63-4a3b-8eab-8034b5b09493" />
+
+        ✧ ▬▭▬ ▬▭▬ ✦✧✦ ▬▭▬ ▬▭▬ ✧
+
+<img width="1000" height="1000" alt="Picsart_26-08-23_15-15-19-919" src="https://github.com/user-attachments/assets/1e5eb815-a512-4b79-b944-6c2ccce6c635" />
+
+“ 𝘪𝘯 𝘢 𝘸𝘰𝘳𝘭𝘥 𝘧𝘶𝘭𝘭 𝘰𝘧 𝘴𝘵𝘰𝘳𝘮𝘴, 𝘴𝘩𝘦 𝘣𝘦𝘤𝘢𝘮𝘦 𝘩𝘪𝘴 𝘲𝘶𝘪𝘦𝘵 𝘴𝘯𝘰𝘸𝘧𝘢𝘭𝘭.."
+" 𝘈𝘯𝘥 𝘩𝘦 𝘣𝘦𝘤𝘢𝘮𝘦 𝘵𝘩𝘦 𝘸𝘢𝘳𝘮𝘵𝘩 𝘴𝘩𝘦 𝘯𝘦𝘷𝘦𝘳 𝘩𝘢𝘥 𝘵𝘰 𝘧𝘦𝘢𝘳 𝘭𝘰𝘴𝘪𝘯𝘨.. "
+- 𝑌𝑣𝑒𝑡𝑡𝑒 𝑎𝑛𝑑 𝑉𝑎𝑟𝑘𝑎 ɞ
+
+<img width="640" height="384" alt="c77b9692-5253-4681-87a7-fef0483acfd4" src="https://github.com/user-attachments/assets/d0a3e3aa-2078-41e3-ac7e-7b83bf8f0e36" />
+
+
+<img width="450" height="546" alt="Untitled146_20260815132244" src="https://github.com/user-attachments/assets/e5513108-fbe2-4a05-a16a-1252ef79434d" />
+
+“I used to wonder why the stars never answered me.
+Perhaps they had already heard my prayers…
+and simply chose to forget.”
+— Yvette Vasilisa ✧
+
+" 𝘛𝘩𝘢𝘵'𝘴 𝘢𝘭𝘭 𝘧𝘰𝘭𝘬𝘴! 𝘩𝘰𝘱𝘦 𝘺𝘰𝘶 𝘦𝘯𝘫𝘰𝘺 𝘮𝘺 𝘱𝘳𝘰𝘧𝘪𝘭𝘦 "
+
+<img width="736" height="414" alt="8fd97477-b957-4914-a734-4a5a0bb0dc0a" src="https://github.com/user-attachments/assets/45392270-2a30-40aa-bf34-c5feaee94898" />
+
