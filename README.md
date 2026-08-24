@@ -1,5 +1,10 @@
 <div align="center">
 
+<img src="images/banner.png" width="800">
+
+</div>
+<div align="center">
+
 # ˚₊‧꒰ა ♡ ໒꒱ ‧₊˚
 # 𝒲𝑒𝓁𝒸𝑜𝓂𝑒 𝓉𝑜 𝓂𝓎 𝓁𝒾𝓉𝓉𝓁𝑒 𝑔𝒶𝓇𝒹𝑒𝓃 🌷
 ### ୨୧ 𝒶 𝓈𝓂𝒶𝓁𝓁 𝒸𝑜𝓇𝓃𝑒𝓇 𝑜𝒻 𝓂𝓎 𝒸𝑜𝓏𝓎 𝓌𝑜𝓇𝓁𝒹 ୨୧
