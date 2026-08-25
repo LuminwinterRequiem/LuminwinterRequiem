@@ -35,7 +35,7 @@ I enjoy:
 
 🦌 ˚₊‧ 𝓂𝓎 𝓅𝓇𝑜𝒿𝑒𝒸𝓉𝓈 ‧₊˚ 🦌
 
-╭─────────────── ༺♡༻ ───────────────╮
+ʚ ∘∘∘ ♬ ────٭˚ ིྀ ˚٭──── ♬ ∘∘∘ ɞ    
 
 🎀 **𝒞𝒽𝒶𝓇𝒶𝒸𝓉𝑒𝓇 𝒫𝓇𝑜𝒿𝑒𝒸𝓉𝓈**
 
@@ -57,9 +57,9 @@ I enjoy:
 ♡ Fantasy settings  
 ♡ Lore archives  
 ♡ Stories & concepts  
-♡ Random ideas that escaped my brain 🧠🌷
+♡ Random ideas that escaped my brain 
 
-╰─────────────── ༺♡༻ ───────────────╯
+ʚ ∘∘∘ ♬ ────٭˚ ིྀ ˚٭──── ♬ ∘∘∘ ɞ    
 
 
 🧺 ˚₊‧ 𝒸𝓊𝓇𝓇𝑒𝓃𝓉𝓁𝓎 𝓌𝑜𝓇𝓀𝒾𝓃𝑔 𝑜𝓃 ‧₊˚ 🧺
@@ -111,7 +111,7 @@ my f/o's!!
 
 <img width="600" height="200" alt="a96c7747-2cb6-476c-a95d-7933e6dad4e0" src="https://github.com/user-attachments/assets/ae3afdec-1a63-4a3b-8eab-8034b5b09493" />
 
-        ✧ ▬▭▬ ▬▭▬ ✦✧✦ ▬▭▬ ▬▭▬ ✧
+✧ ▬▭▬ ▬▭▬ ✦✧✦ ▬▭▬ ▬▭▬ ✧
 
 <img width="1000" height="1000" alt="Picsart_26-08-23_15-15-19-919" src="https://github.com/user-attachments/assets/1e5eb815-a512-4b79-b944-6c2ccce6c635" />
 
