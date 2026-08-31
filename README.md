@@ -138,8 +138,6 @@ and simply chose to forget.”
 
 <img width="720" height="649" alt="1787584043383" src="https://github.com/user-attachments/assets/eb87d06c-c180-424a-b7a4-c0e93df6d0b7" />
 
-Random blehh
+ʚ ∘∘∘ ♬ ────٭˚ ིྀ ˚٭──── ♬ ∘∘∘ ɞ    
 
-♡ We didn't even click her ata at all (idek how does atabook work) if you dk who did it you can't js "ooh, this person had problem with'her' it must have been this person". Blaming someone js because they had problem with'her' is so ridiculous and immature ヾ(＾-＾)ノ
-
-<img width="735" height="736" alt="b534ded7-74cc-40ce-93ab-02decd66335b" src="https://github.com/user-attachments/assets/e1d4adc9-c8da-4055-a8c1-9f16f968a622" />
+<img width="680" height="1730" alt="top_tracks_short_term" src="https://github.com/user-attachments/assets/4cc4cb1b-39d4-45d3-8030-beb5709073be" />
