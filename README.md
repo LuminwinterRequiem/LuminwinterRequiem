@@ -129,6 +129,36 @@ Perhaps they had already heard my prayers…
 and simply chose to forget.”
 — Yvette Vasilisa ✧
 
+<img width="790" height="720" alt="Picsart_26-09-01_18-29-01-945" src="https://github.com/user-attachments/assets/db3fe015-dc43-4415-9b3a-aac703fe3d18" />
+
+♡ 𝓕acts 𝒜bout 𝓜y 𝒪c . . .   〖Yvette〗𓏲
+
+ʚ her back is stitched with 
+   with ribbon (/□＼*)
+ʚ on her left eye, it got stitched 
+   by a fabric of lace for safety
+   reason (ﾉ´∀｀*)
+ʚ she got reincarnated for 5 
+   times !! 
+ʚ every animals doesn't hurt her
+   and comfortable around her
+   especially deers 𐂂
+ʚ she has her goddess form 
+   (๑°ㅁ°๑)‼✧
+ʚ she's half Spanish and half
+   Russian ☕
+ʚ she owns a bakery shop 🥐
+ʚ she's very gentle and loving
+   towards her husband
+   (Varka ♡♡) 
+ʚ when she's on her 2nd life, 
+   she married a man but, he
+   use her daughter as a 
+   sacrifice for a cultist ritual 
+   (｡•́︿•̀｡)  ︴ dw she took her
+   revenge 💪('ω'💪)
+ʚ she has her entity form... 
+
 " 𝘛𝘩𝘢𝘵'𝘴 𝘢𝘭𝘭 𝘧𝘰𝘭𝘬𝘴! 𝘩𝘰𝘱𝘦 𝘺𝘰𝘶 𝘦𝘯𝘫𝘰𝘺 𝘮𝘺 𝘱𝘳𝘰𝘧𝘪𝘭𝘦 "
 
 <img width="736" height="414" alt="8fd97477-b957-4914-a734-4a5a0bb0dc0a" src="https://github.com/user-attachments/assets/45392270-2a30-40aa-bf34-c5feaee94898" />
