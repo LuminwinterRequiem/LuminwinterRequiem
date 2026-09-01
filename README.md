@@ -134,29 +134,39 @@ and simply chose to forget.”
 ♡ 𝓕acts 𝒜bout 𝓜y 𝒪c . . .   〖Yvette〗𓏲
 
 ʚ her back is stitched with 
-   with ribbon (/□＼*)
+   with ribbon
+    (/□＼*)
+   
 ʚ on her left eye, it got stitched 
    by a fabric of lace for safety
    reason (ﾉ´∀｀*)
+   
 ʚ she got reincarnated for 5 
-   times !! 
+   times !!
+   
 ʚ every animals doesn't hurt her
    and comfortable around her
    especially deers 𐂂
+   
 ʚ she has her goddess form 
    (๑°ㅁ°๑)‼✧
+   
 ʚ she's half Spanish and half
    Russian ☕
+   
 ʚ she owns a bakery shop 🥐
+
 ʚ she's very gentle and loving
    towards her husband
    (Varka ♡♡) 
+   
 ʚ when she's on her 2nd life, 
    she married a man but, he
    use her daughter as a 
    sacrifice for a cultist ritual 
    (｡•́︿•̀｡)  ︴ dw she took her
    revenge 💪('ω'💪)
+   
 ʚ she has her entity form... 
 
 " 𝘛𝘩𝘢𝘵'𝘴 𝘢𝘭𝘭 𝘧𝘰𝘭𝘬𝘴! 𝘩𝘰𝘱𝘦 𝘺𝘰𝘶 𝘦𝘯𝘫𝘰𝘺 𝘮𝘺 𝘱𝘳𝘰𝘧𝘪𝘭𝘦 "
