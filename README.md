@@ -6,7 +6,7 @@
 
 <h2>  𝄞⨾𓍢ִ໋ I𝑟e𝑛e'𝑠 l𝑖t𝑡l𝑒 c𝑜r𝑛e𝑟..ㅤ♡ྀི ₊</h2>
 
- ♡ 𝘙𝘰𝘵 𝘋𝘢𝘶𝘨𝘩𝘵𝘦𝘳　·　♡ 𝘈𝘯𝘨𝘦𝘭'𝘴 𝘥𝘳𝘦𝘢𝘮　·　𝘱𝘰𝘭𝘬𝘢 𝘥𝘰𝘵𝘴 ♡ 
+ ♡ 𝘙𝘰𝘵 𝘋𝘢𝘶𝘨𝘩𝘵𝘦𝘳　·　♡ 𝘈𝘯𝘨𝘦𝘭'𝘴 𝘥𝘳𝘦𝘢𝘮　·　𝘗𝘰𝘭𝘬𝘢 𝘥𝘰𝘵𝘴 ♡ 
  
 <table width="100%">
 <tr>
@@ -195,8 +195,8 @@ I found my own little world."</i>
 
 <img width="735" height="824" alt="𝚂𝙴𝙴𝙽 𝚃𝙷𝙸𝚂 𝙰𝙽𝙶𝙴𝙻_" src="https://github.com/user-attachments/assets/f3895837-e737-4b3e-a505-b45437aca954" />
 
-<img width="736" height="736" alt="66bb0a08-6371-42b9-8c9e-166b2db21acb" src="https://github.com/user-attachments/assets/e3f9b990-4bb4-422d-a298-720a739547e9" />
-
+<img width="736" height="414" alt="520b763d-5221-40c1-ac2f-4fab82398d04" src="https://github.com/user-attachments/assets/dd2288b5-1f20-417a-b295-40340049a233" />
+𝑉𝑎𝑟𝑘𝑎 𝑠𝑜𝑙𝑜 𝑑𝑒 𝑌𝑣𝑒𝑡𝑡𝑒 (*´▽｀)ﾉﾉ
 
 </td>
 <td width="48%">
@@ -209,9 +209,7 @@ I found my own little world."</i>
 
 ˚｡ʚ𓊆୨୧𓊇ɞ｡˚
 
-<img width="736" height="414" alt="520b763d-5221-40c1-ac2f-4fab82398d04" src="https://github.com/user-attachments/assets/e61d6d24-0139-483a-bfb0-3ec3da043bf1" />
-
-𝑉𝑎𝑟𝑘𝑎 𝑠𝑜𝑙𝑜 𝑑𝑒 𝑌𝑣𝑒𝑡𝑡𝑒 (*´▽｀)ﾉﾉ
+<img width="736" height="736" alt="66bb0a08-6371-42b9-8c9e-166b2db21acb" src="https://github.com/user-attachments/assets/7ec1f5ce-ce9f-4858-971a-586bc3a2866a" />
 
 </td>
 </tr>
