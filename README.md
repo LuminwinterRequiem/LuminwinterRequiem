@@ -38,7 +38,7 @@
 
 
 
-<span style="color:#EBCBD8;">**𝑀𝑦 𝑏𝑒𝑙𝑜𝑣𝑒𝑑 ℎ𝑢𝑠𝑏𝑎𝑛𝑑 ♡**
+<font color="#EBCBD8">**𝑀𝑦 𝑏𝑒𝑙𝑜𝑣𝑒𝑑 ℎ𝑢𝑠𝑏𝑎𝑛𝑑 ♡**</font>
 
 ·˚ ༘₊· ͟͟͞͞꒰➳
 
@@ -218,6 +218,8 @@ I found my own little world."</i>
 </table>
 
 <img width="736" height="414" alt="5b48f301-f930-4543-89e9-52df4feed7d2" src="https://github.com/user-attachments/assets/3d0802af-71ea-489d-997e-7f40dff8e3a6" />
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Serif&pause=1000&color=EBCBD8&width=435&lines=Asking+all+the+time+how+I+haven't+died%2C+;Long+hair+swinging+side+to+side%2C+;I+even+ask+myself+now+and+then%2C+;But+only+when+Im+stuck+inside+my+bed%2C+;The+pounding+left+me+with+a+quick+dead+end%2C+;Roses+around+me+had+becoming+my+friends%2C+;I+know+they+wish+that+I+was+in+the+ground%2C+;Even+in+death+I'm+gonna+stick+around.)](https://git.io/typing-svg)
 
 </div>
 
