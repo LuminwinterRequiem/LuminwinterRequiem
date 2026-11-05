@@ -4,7 +4,7 @@
 <img width="736" height="414" alt="dbf4ef7d-c0c6-4a5a-8c1b-23c8adda0691" src="https://github.com/user-attachments/assets/d06351ce-29f6-459f-8e41-c6ede2fcc5c4" />
 
 
-<h2>  𓏵  𝐼𝓇𝑒𝓃𝑒'𝓈 𝓁𝒾𝓉𝓉𝓁𝑒 𝒸𝑜𝓇𝓃𝑒𝓇..ㅤ♡ྀི ₊</h2>
+<h2>  𝄞⨾𓍢ִ໋ I𝑟e𝑛e'𝑠 l𝑖t𝑡l𝑒 c𝑜r𝑛e𝑟..ㅤ♡ྀི ₊</h2>
 
  ♡ 𝘙𝘰𝘵 𝘋𝘢𝘶𝘨𝘩𝘵𝘦𝘳　·　♡ 𝘈𝘯𝘨𝘦𝘭'𝘴 𝘥𝘳𝘦𝘢𝘮　·　𝘱𝘰𝘭𝘬𝘢 𝘥𝘰𝘵𝘴 ♡ 
  
@@ -80,7 +80,7 @@
 <img width="736" height="736" alt="07fbaf10-ce41-45a8-8642-f9ee8111c9dc" src="https://github.com/user-attachments/assets/b5042526-9cd5-4da7-aefe-db6a50261fa9" />
 
 dollette
-</td>
+
 <td align="center" width="33%">
 <img width="736" height="736" alt="6250d8b4-eb0a-415b-8836-86e9ed83d076" src="https://github.com/user-attachments/assets/9ee82273-c0a0-40c2-afc0-4965d6ff21b7" />
 
@@ -185,5 +185,61 @@ I found my own little world."</i>
 
 ♡ made with love by 𝐼𝓇𝑒𝓃𝑒 
 
+<table>
+<tr>
+<td width="52%" align="center">
+
+<img width="588" height="588" alt="IMG-20261106-WA0007" src="https://github.com/user-attachments/assets/40eb7b24-e2c0-41c5-926a-480a77fd1fcc" />
+
+ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐
+
+<img width="735" height="824" alt="𝚂𝙴𝙴𝙽 𝚃𝙷𝙸𝚂 𝙰𝙽𝙶𝙴𝙻_" src="https://github.com/user-attachments/assets/f3895837-e737-4b3e-a505-b45437aca954" />
+
+<img width="736" height="736" alt="66bb0a08-6371-42b9-8c9e-166b2db21acb" src="https://github.com/user-attachments/assets/e3f9b990-4bb4-422d-a298-720a739547e9" />
+
+
+</td>
+<td width="48%">
+
+<img width="250" height="250" alt="00192439-ec74-4d76-9860-c4f499586128" src="https://github.com/user-attachments/assets/2756844a-1a88-4161-9b55-71ab3814c2b3" />
+
+<img width="736" height="736" alt="af51ad8d-c3be-49fd-9073-319a3490dc51" src="https://github.com/user-attachments/assets/595ed311-8a53-4b80-896c-a9d0935ecb23" />
+
+𝐺𝑎𝑙𝑙𝑎𝑔ℎ𝑒𝑟 𝑠𝑜𝑙𝑜 𝑑𝑒 𝐴𝑒𝑣𝑒𝑟𝑖𝑒 *´ㅅ`)ﾞ♡
+
+˚｡ʚ𓊆୨୧𓊇ɞ｡˚
+
+<img width="736" height="414" alt="520b763d-5221-40c1-ac2f-4fab82398d04" src="https://github.com/user-attachments/assets/e61d6d24-0139-483a-bfb0-3ec3da043bf1" />
+
+𝑉𝑎𝑟𝑘𝑎 𝑠𝑜𝑙𝑜 𝑑𝑒 𝑌𝑣𝑒𝑡𝑡𝑒 (*´▽｀)ﾉﾉ
+
+</td>
+</tr>
+</table>
+
 <img width="736" height="414" alt="5b48f301-f930-4543-89e9-52df4feed7d2" src="https://github.com/user-attachments/assets/3d0802af-71ea-489d-997e-7f40dff8e3a6" />
+
+</div>
+
+<table>
+<tr>
+<td align="center" width="33%">
+
+<img width="736" height="736" alt="2af0dbeb-9ee1-42cc-a48c-86a71ba08759" src="https://github.com/user-attachments/assets/bc286873-05e6-47c7-ba5f-bdd833829bd9" />
+
+
+<td align="center" width="33%">
+
+<img width="474" height="474" alt="a4857fcb-c500-465a-9ed3-a452de179f3a" src="https://github.com/user-attachments/assets/0272fcc4-7114-4e79-bb03-1d23d6dfa9e8" />
+
+</td>
+<td align="center" width="33%">
+
+<img width="736" height="736" alt="7e694755-9661-4c0e-b2dd-2562d49e485a" src="https://github.com/user-attachments/assets/47443479-faee-4129-8b39-513a10573036" />
+
+</td>
+</tr>
+</table>
+ 
+<img width="600" height="278" alt="c29bec0b-291b-4eef-8f52-a25227cb6cc4" src="https://github.com/user-attachments/assets/790463a8-e6e7-4ce1-9295-e6d0f366e5af" />
 
