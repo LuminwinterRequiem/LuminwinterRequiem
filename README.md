@@ -95,7 +95,7 @@ I enjoy:
 my f/o's!! 
 
 ♡ Varka (GI) → NS ┆ 𝘳𝘦𝘴𝘱𝘦𝘤𝘵𝘧𝘶𝘭𝘭𝘺
-♡ Ashveil (HSR) → SS
+♡ Gallagher (HSR) → NS | sorry!
 
 <img width="736" height="414" alt="5ea51419-3d2a-40a4-8396-f49fb6f0f5e6" src="https://github.com/user-attachments/assets/e9bf2d8c-c5d1-441f-befd-62d4701494d9" />
 
