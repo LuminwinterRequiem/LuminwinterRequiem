@@ -54,7 +54,7 @@
 
 
 ───── ✧ ───────
-<span style="color:#B99AAF;"></i>𝒂 𝒉𝒆𝒂𝒓𝒕 𝒇𝒖𝒍𝒍 𝒐𝒇 𝒇𝒊𝒄𝒕𝒊𝒐𝒏𝒂𝒍 𝒔𝒕𝒐𝒓𝒊𝒆𝒔.</i>
+<span style="color:#B99AAF;"></i> 𝒂 𝒉𝒆𝒂𝒓𝒕 𝒇𝒖𝒍𝒍 𝒐𝒇 𝒇𝒊𝒄𝒕𝒊𝒐𝒏𝒂𝒍 𝒔𝒕𝒐𝒓𝒊𝒆𝒔.</i>
 
 <img width="734" height="312" alt="05323646-b248-49ca-8078-0779545d6344" src="https://github.com/user-attachments/assets/fd3eeb68-0d93-4568-88e2-01175954e42e" />
 
@@ -196,7 +196,8 @@ I found my own little world."</i>
 <img width="735" height="824" alt="𝚂𝙴𝙴𝙽 𝚃𝙷𝙸𝚂 𝙰𝙽𝙶𝙴𝙻_" src="https://github.com/user-attachments/assets/f3895837-e737-4b3e-a505-b45437aca954" />
 
 <img width="736" height="414" alt="520b763d-5221-40c1-ac2f-4fab82398d04" src="https://github.com/user-attachments/assets/dd2288b5-1f20-417a-b295-40340049a233" />
-𝑉𝑎𝑟𝑘𝑎 𝑠𝑜𝑙𝑜 𝑑𝑒 𝑌𝑣𝑒𝑡𝑡𝑒 (*´▽｀)ﾉﾉ
+𝑉𝑎𝑟𝑘𝑎 𝑠𝑜𝑙𝑜 𝑑𝑒 𝑌𝑣𝑒𝑡𝑡𝑒 
+(*´▽｀)ﾉﾉ
 
 </td>
 <td width="48%">
