@@ -9,26 +9,28 @@
  ♡ 𝘙𝘰𝘵 𝘋𝘢𝘶𝘨𝘩𝘵𝘦𝘳　·　♡ 𝘈𝘯𝘨𝘦𝘭'𝘴 𝘥𝘳𝘦𝘢𝘮　·　𝘗𝘰𝘭𝘬𝘢 𝘥𝘰𝘵𝘴 ♡ 
  
 <table width="100%">
-<tr>
-<td align="left">
-<span style="color:#D69AAE;">♡ 𝐼𝑟𝑒𝑛𝑒 / 𝑅𝑒𝑛𝑒</span>
-</td>
-<td align="right">
-<span style="color:#B99AAF;">♡ 31 𝑂𝑐𝑡𝑜𝑏𝑒𝑟</span>
-</td>
-</tr>
-<tr>
-<td align="center" colspan="2">
-<span style="color:#C8B8DE;">♡ 𝑆ℎ𝑒 / 𝐻𝑒𝑟</span>
-</td>
-</tr>
-<tr>
-<td align="right" colspan="2">
-<span style="color:#D69AAE;">♡ 𝐴𝑛𝑔𝑒𝑙 𓏲๋࣭࣪˖</span>
-</td>
-</tr>
+
+<img width="800" height="450" alt="@sickshyangel _ @sickshynurse _  pls do give credits  if reposted ♡" src="https://github.com/user-attachments/assets/c59e23a5-96d8-4169-8e86-41ec23b7b8cd" />
+
+
+
+<table align="center">
+  <tr>
+    <td>17 </td>
+    <td>𝒜ngel 𓏲๋࣭࣪˖</td>
+    <td>𝓘stp</td>
+  </tr>
+  <tr>
+    <td>𝒮he/𝓗er</td>
+    <td>🪽</td>
+    <td>𝓞ct 31 ɞ</td>
+  </tr>
+  <tr>
+    <td>𝒮traight ! </td>
+    <td>𝒟oubles 𝒟ni ♡</td>
+    <td>𝒩onsharing (∩´﹏`∩)</td>
+  </tr>
 </table>
-</div>
 
 <table>
 <tr>
