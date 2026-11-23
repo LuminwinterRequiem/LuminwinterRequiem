@@ -1,4 +1,4 @@
-<img width="200" height="200" alt="2cfec984-5186-4430-8495-45e77cb87862" src="https://github.com/user-attachments/assets/d5ab9232-790f-4f8b-be78-72017855ec05" />
+<img width="500" height="100" alt="2cfec984-5186-4430-8495-45e77cb87862" src="https://github.com/user-attachments/assets/d5ab9232-790f-4f8b-be78-72017855ec05" />
 
 
 <div align="center">
@@ -172,7 +172,7 @@ I found my own little world."</i>
 
 
 "𝐼'𝑚 𝑛𝑜𝑡 𝑎 𝑟𝑜𝑡 𝑑𝑎𝑢𝑔ℎ𝑡𝑒𝑟.. "
-<img width="60" height="90" alt="820e75e1-85b7-4465-8567-46b07bcc4216" src="https://github.com/user-attachments/assets/2d024caa-78d9-4ecb-8cd6-882ed8f4ddd4" />
+<img width="400" height="80" alt="820e75e1-85b7-4465-8567-46b07bcc4216" src="https://github.com/user-attachments/assets/2d024caa-78d9-4ecb-8cd6-882ed8f4ddd4" />
 
 
 </td>
