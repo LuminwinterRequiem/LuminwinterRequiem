@@ -172,6 +172,8 @@ I found my own little world."</i>
 
 
 "𝐼'𝑚 𝑛𝑜𝑡 𝑎 𝑟𝑜𝑡 𝑑𝑎𝑢𝑔ℎ𝑡𝑒𝑟.. "
+<img width="60" height="80" alt="820e75e1-85b7-4465-8567-46b07bcc4216" src="https://github.com/user-attachments/assets/2d024caa-78d9-4ecb-8cd6-882ed8f4ddd4" />
+
 
 </td>
 <td width="48%">
