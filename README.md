@@ -12,7 +12,7 @@
  
 <table width="100%">
 
-<img width="800" height="450" alt="@sickshyangel _ @sickshynurse _  pls do give credits  if reposted ♡" src="https://github.com/user-attachments/assets/c59e23a5-96d8-4169-8e86-41ec23b7b8cd" />
+<img width="400" height="80" alt="@sickshyangel _ @sickshynurse _  pls do give credits  if reposted ♡" src="https://github.com/user-attachments/assets/c59e23a5-96d8-4169-8e86-41ec23b7b8cd" />
 
 
 
@@ -103,7 +103,7 @@ morute
 
 ୨ৎ ─────────────── ୨ৎ
 
-<img width="200" height="100" alt="885a18cf-7932-4e52-93f8-c8f5802b50f2" src="https://github.com/user-attachments/assets/cba28337-1959-45ea-93b9-21317bf71df8" />
+<img width="400" height="80" alt="885a18cf-7932-4e52-93f8-c8f5802b50f2" src="https://github.com/user-attachments/assets/cba28337-1959-45ea-93b9-21317bf71df8" />
 
 
 </div>
@@ -172,7 +172,7 @@ I found my own little world."</i>
 
 
 "𝐼'𝑚 𝑛𝑜𝑡 𝑎 𝑟𝑜𝑡 𝑑𝑎𝑢𝑔ℎ𝑡𝑒𝑟.. "
-<img width="400" height="80" alt="820e75e1-85b7-4465-8567-46b07bcc4216" src="https://github.com/user-attachments/assets/2d024caa-78d9-4ecb-8cd6-882ed8f4ddd4" />
+<img width="60" height="80" alt="820e75e1-85b7-4465-8567-46b07bcc4216" src="https://github.com/user-attachments/assets/2d024caa-78d9-4ecb-8cd6-882ed8f4ddd4" />
 
 
 </td>
