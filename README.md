@@ -1,3 +1,5 @@
+<img width="895" height="200" alt="2cfec984-5186-4430-8495-45e77cb87862" src="https://github.com/user-attachments/assets/d5ab9232-790f-4f8b-be78-72017855ec05" />
+
 
 <div align="center">
 
@@ -92,7 +94,7 @@ coquette
 <td align="center" width="33%">
 <img width="736" height="702" alt="1c82cba3-aaab-42ec-88e6-ea182cb0adad" src="https://github.com/user-attachments/assets/a86433f6-a508-4a68-8518-832224680d3d" />
 
-cottagecore
+morute
 </td>
 </tr>
 </table>
@@ -100,6 +102,9 @@ cottagecore
 <div align="center">
 
 ୨ৎ ─────────────── ୨ৎ
+
+<img width="540" height="350" alt="885a18cf-7932-4e52-93f8-c8f5802b50f2" src="https://github.com/user-attachments/assets/cba28337-1959-45ea-93b9-21317bf71df8" />
+
 
 </div>
 
@@ -167,6 +172,9 @@ I found my own little world."</i>
 
 
 "𝐼'𝑚 𝑛𝑜𝑡 𝑎 𝑟𝑜𝑡 𝑑𝑎𝑢𝑔ℎ𝑡𝑒𝑟.. "
+
+<img width="431" height="269" alt="820e75e1-85b7-4465-8567-46b07bcc4216" src="https://github.com/user-attachments/assets/7ce0d27b-fc83-45c0-88fc-598f60658117" />
+
 
 </td>
 <td width="48%">
