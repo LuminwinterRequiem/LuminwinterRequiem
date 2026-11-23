@@ -1,4 +1,4 @@
-<img width="100" height="200" alt="2cfec984-5186-4430-8495-45e77cb87862" src="https://github.com/user-attachments/assets/d5ab9232-790f-4f8b-be78-72017855ec05" />
+<img width="200" height="200" alt="2cfec984-5186-4430-8495-45e77cb87862" src="https://github.com/user-attachments/assets/d5ab9232-790f-4f8b-be78-72017855ec05" />
 
 
 <div align="center">
@@ -103,7 +103,7 @@ morute
 
 ୨ৎ ─────────────── ୨ৎ
 
-<img width="100" height="90" alt="885a18cf-7932-4e52-93f8-c8f5802b50f2" src="https://github.com/user-attachments/assets/cba28337-1959-45ea-93b9-21317bf71df8" />
+<img width="200" height="100" alt="885a18cf-7932-4e52-93f8-c8f5802b50f2" src="https://github.com/user-attachments/assets/cba28337-1959-45ea-93b9-21317bf71df8" />
 
 
 </div>
